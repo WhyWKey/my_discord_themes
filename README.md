@@ -1,2 +1,2 @@
-# rifk_theme
-rifk7 theme real 😱😱
+# discord themes
+banger themes ya know gonna add more
